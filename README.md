@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xymsab
+- 👋 Hi, I’m @sabxym
 - 👀 I’m interested in digital content creation
 - 🌱 I’m currently learning coding skills
 - 💞️ I’m looking to collaborate on my new project
